@@ -1,1 +1,0 @@
-# BMTP-LAB7-Savelyev
